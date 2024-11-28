@@ -2,7 +2,7 @@
 - 👀 I’m interested in alot of money
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on fashion brands
-- 📫 How to reach me @sa___umya
+- 📫 How to reach me @s___aumya
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: hehehe
 
